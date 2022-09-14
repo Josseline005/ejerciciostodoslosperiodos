@@ -1,1 +1,1 @@
-# ejerciciostodoslosperiodos
+# ejercicios todos los periodos
